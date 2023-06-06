@@ -10,9 +10,9 @@
 
 <br>
 
-<div align="center">In addition to my love for programming, I'm also a cat enthusiast. I can't resist their cuteness and unique personalities. If you ever need to talk about cats, I'm your person! 🐱
+<div align="center">In addition to my love for programming, I'm also a cat enthusiast. I can't resist their cuteness and unique personalities. The beauty I have in my profile pic is my daughter named Roma 🐱
 
-I also have a deep interest in immersing myself in Asian culture and discovering its wonders. From music and movies to fashion and cuisine, everything related to Asia has always captured my attention and curiosity. If you have any recommendations, feel free to share them.</div>
+I also have a deep interest in immersing myself in Asian culture and discovering its wonders.</div>
 
 <br>
 
